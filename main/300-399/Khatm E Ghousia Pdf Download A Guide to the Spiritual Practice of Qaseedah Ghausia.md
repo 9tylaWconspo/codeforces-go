@@ -1,0 +1,35 @@
+# Khatm E Ghousia: A Spiritual Practice of Reciting Qaseedah Ghausia
+ 
+Khatm E Ghousia is a spiritual practice of reciting Qaseedah Ghausia, a poem composed by the great Sufi saint Sheikh Abdul Qadir Jilani (ra). Qaseedah Ghausia is a praise of Allah and His Messenger (saw), as well as a supplication for divine blessings and guidance. It also contains secrets of gnosis and spiritual elevation.
+ 
+Qaseedah Ghausia is divided into 11 stanzas, each with its own virtues and benefits. According to some sources, reciting Qaseedah Ghausia 11 times daily can bring one closer to Allah and His beloved Prophet (saw), as well as grant one the vision of Allah and His awliya (friends). Reciting Qaseedah Ghausia with specific intentions can also help one achieve one's worldly and spiritual goals, such as gaining knowledge, wealth, health, love, protection, etc.
+ 
+**Download Zip » [https://t.co/2s4wLFzslJ](https://t.co/2s4wLFzslJ)**
+
+
+ 
+Khatm E Ghousia is usually performed in a group or majlis, with a leader who recites the Qaseedah aloud and the followers who repeat after him. Before and after the recitation, Durood Shareef (salutations upon the Prophet) and Fateha (opening chapter of the Quran) are offered for the Prophet (saw), Sheikh Abdul Qadir Jilani (ra) and all the masters of the Qadiriyya order. The recitation is done with respect, devotion and concentration, while facing the Qibla (direction of Kaaba).
+ 
+Khatm E Ghousia can be done at any time, but preferably after Esha or Tahajjud prayers. It is recommended to avoid eating meat, chicken, eggs and other jalaali (hot) foods before the recitation. One should also be in a state of purity and wear clean clothes. One should also make tasawwur (visualization) of one's Sheikh or spiritual guide during the recitation.
+ 
+Khatm E Ghousia is a powerful way of connecting with Allah and His Messenger (saw), as well as receiving the blessings and intercession of Sheikh Abdul Qadir Jilani (ra) and his successors. It is a means of purifying one's heart, mind and soul, and attaining spiritual enlightenment and bliss.
+ 
+If you want to download Khatm E Ghousia Pdf, you can find it online from various sources. Here are some links to download Khatm E Ghousia Pdf:
+ 
+- [Khatme Ghausia ka Jawaz--Zia ullah Qadri.pdf](https://archive.org/details/KhatmeGhausiaKaJawaz--ziaUllahQadri.pdf) by Muhammad Tariq Hanafi Sunni Lahori
+- [QASEEDAH GHAUSIA AND KHATME QAADIRIA KABEER](https://www.raza.org.za/durood_and_supplications_qaseedah_ghausia.html) by Imam Ahmed Raza Academy
+- [Wazifa Khatme Qadiriyah Kabeer - Qaseeda Ghousia in English with Meaning](https://www.learnaboutislam.in/2018/03/wazifa-khatme-qadiriyah-kabeer-qaseeda.html) by Learn About Islam
+
+We hope that this article has given you some useful information about Khatm E Ghousia and its benefits. May Allah bless you with His mercy and grace. Ameen.
+  
+Qadiriyya order is one of the oldest and most widespread Sufi orders in the world. It traces its spiritual lineage to the Prophet Muhammad (saw) through his cousin and son-in-law Ali ibn Abi Talib (ra). The order is known for its emphasis on the love of Allah and His Messenger (saw), as well as the love of humanity and all creation. The order also teaches its followers to seek knowledge, practice charity, uphold justice, and serve the community.
+ 
+Khatm E Ghousia book pdf free download,  How to perform Khatm E Ghousia with pdf guide,  Khatm E Ghousia dua pdf in Urdu and English,  Benefits of Khatm E Ghousia pdf download,  Khatm E Ghousia sharif pdf online,  Khatm E Ghousia ki fazilat pdf download,  Khatm E Ghousia ka tarika pdf in Hindi,  Khatm E Ghousia by Shaykh Abdul Qadir Jilani pdf,  Khatm E Ghousia wazifa pdf for success,  Khatm E Ghousia naqsh pdf for protection,  Khatm E Ghousia tasbeeh pdf download,  Khatm E Ghousia audio mp3 and pdf,  Khatm E Ghousia zikr pdf for blessings,  Khatm E Ghousia kamil pdf download,  Khatm E Ghousia qadriya pdf online,  Khatm E Ghousia in Arabic pdf download,  Khatm E Ghousia transliteration and translation pdf,  Khatm E Ghousia for marriage pdf download,  Khatm E Ghousia for health pdf online,  Khatm E Ghousia for wealth pdf download,  Khatm E Ghousia for love pdf online,  Khatm E Ghousia for children pdf download,  Khatm E Ghousia for parents pdf online,  Khatm E Ghousia for enemies pdf download,  Khatm E Ghousia for forgiveness pdf online,  Khatm E Ghousia for peace pdf download,  Khatm E Ghousia for happiness pdf online,  Khatm E Ghousia for knowledge pdf download,  Khatm E Ghousia for wisdom pdf online,  Khatm E Ghousia for guidance pdf download,  Khatm E Ghousia for spiritual growth pdf online,  Khatm E Ghousia for miracles pdf download,  Khatm E Ghousia for dreams pdf online,  Khatm E Ghousia for visions pdf download,  Khatm E Ghousia for prophethood pdf online,  Khatm E Ghousia for sainthood pdf download,  Khatm E Ghousia for leadership pdf online,  Khatm E Ghousia for authority pdf download,  Khatm E Ghousia for honor pdf online,  Khatm E Ghousia for dignity pdf download,  Khatm E Ghousia for respect pdf online,  Khatm E Ghousia for gratitude pdf download,  Khatm E Ghousia for generosity pdf online,  Khatm E Ghousia for charity pdf download,  Khatm E Ghousia for justice pdf online,  Khatm E Ghousia for mercy pdf download,  Khatm E Ghousia for compassion pdf online,  Khatm E Ghousia for kindness pdf download,  Khatm E Ghousia for sincerity pdf online,  Khatm E Ghousia for devotion pdf download
+ 
+The Qadiriyya order has many branches and sub-orders, each with its own distinctive features and practices. Some of the famous branches are the Jilaniyya, named after Sheikh Abdul Qadir Jilani (ra), the founder of the order; the Sultaniyya, named after Sultan Bahu (ra), a seventeenth-century saint from India; the Boutchichiyya, named after Sheikh Hamza al-Boutchichi (ra), a twentieth-century saint from Morocco; and the Noshahiyya, named after Sheikh Muhammad Noshahi (ra), a twentieth-century saint from Pakistan.
+ 
+The Qadiriyya order has produced many eminent scholars, saints, poets, and leaders throughout history. Some of them are Sheikh Abdul Qadir Jilani (ra), Sheikh Ahmed ar-Rifa'i (ra), Sheikh Abdul Wahab al-Sha'rani (ra), Sheikh Ahmed Sirhindi (ra), Sheikh Shah Waliullah Dehlawi (ra), Sheikh Ahmed Zarruq (ra), Sheikh Abd al-Aziz al-Dabbagh (ra), Sheikh Ahmadou Bamba (ra), Sheikh Umar Futi Tal (ra), Sheikh Ibrahim Niasse (ra), Sheikh Muhammad Ilyas Kandhlawi (ra), Sheikh Muhammad Zakariyya Kandhlawi (ra), Sheikh Muhammad al-Yaqoubi (ra), and Sheikh Muhammad Tahir ul-Qadri (ra).
+ 
+The Qadiriyya order is open to all Muslims who want to follow the path of Sufism and attain closeness to Allah and His Messenger (saw). The order does not impose any rigid rules or conditions on its adherents, but rather encourages them to follow the Quran and Sunnah, as well as the guidance of their spiritual masters. The order also respects and appreciates other Sufi orders and Islamic schools of thought, and promotes harmony and tolerance among Muslims and non-Muslims alike.
+ 8cf37b1e13
+ 
